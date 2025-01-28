@@ -35,5 +35,5 @@
 22. create accounts
 
 ### contact me
-## Contact Telegram [@bloodyev] 
-https://t.me/bloodyev
+## Contact Telegram [@Neo_Galaxy] 
+https://t.me/Neo_Galaxy
